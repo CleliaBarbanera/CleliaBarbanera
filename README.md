@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @CleliaBarbanera
+- 👀 I’m interested in cats, books and theatre
+- 🌱 I’m currently learning how to be a teacher for students with disabilities
+- 😄 Pronouns: she/her
